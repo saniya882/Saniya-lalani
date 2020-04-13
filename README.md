@@ -1,2 +1,2 @@
 # Saniya-lalani
-Dwvelopwd by saniya 
+Developed by saniya 
